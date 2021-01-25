@@ -1,10 +1,10 @@
-# LTUC
+# Luminus Technical University College
 - ### Students
 - ### Lecturers
 - ### Our specialties 
 - ## About Us.
 ![Alt Text](https://img.alwakeelnews.com/Content/Upload/large/8202013104316907594295.jpg)
----
+--------------------------------------------------------------------
 
 
 
